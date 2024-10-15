@@ -15,7 +15,7 @@ Maybe ... I should create my own opportunity?
 
 ### PEOPLE IS THE ACTUAL LEADER OF THE HISTORY. OPEN-SOURCE COMMUNITY IS THE IDEAL FORM OF THE COMMUNE
 
-Any ideas that willing to break the open-source community, open-source spirit, even the unity of the people is Injustice and reactionary. They are going to be failed completely and the united people won't be defeated.
+Any ideas that willing to break the open-source community, open-source spirit or even the unity of the people is injustice and reactionary. They are going to be failed completely and the united people won't be defeated.
 
 
 
